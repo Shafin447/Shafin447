@@ -1,9 +1,7 @@
 - 👋 Hi, I’m @Shafin447
 - 👀 I’m interested in photography an editing
 - 🌱 I’m currently learning adamjee cantonment college
-- 💞️ I’m looking to collaborate on vedio editing
 - 📫 How to reach me insta id shafventure_
-- 😄 Pronouns: Shafu
 - ⚡ Fun fact: i don't like music
 - 
 <!---
